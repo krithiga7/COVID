@@ -1,4 +1,2 @@
 # COVID
-priyaaaaaaaaaaaaaaaaaaaaa
-KRITHIGA IS GOOD GIRL
-DUH
+CORONA IS A DEADLY VIRUS
